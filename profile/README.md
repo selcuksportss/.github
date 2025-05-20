@@ -4,7 +4,7 @@
 
 ## 🔗 Site Linki
 
-👉 [Canlı Maç İzlemek İçin Tıklayın]([https://macizlemesitesi.com](https://bosstv1.com/))
+👉 [Canlı Maç İzlemek İçin Tıklayın](https://bosstv1.com/)
 
 ## 📺 Neden SelçukSportsHD?
 
