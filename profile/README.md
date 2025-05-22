@@ -1,4 +1,4 @@
-# SelçukSportsHD – Canlı Maç İzle, Kesintisiz Heyecan
+# SelçukSportsHD 👑 SelcukSportsHD 👑 Canlı Maç İzle, Kesintisiz Heyecan
 
 🏟️ **selçuksportshd** ile maç keyfi artık bir tık uzağınızda! Futbol, basketbol, tenis ve daha fazlasını HD kalitede ve donmadan izleyin.  
 
