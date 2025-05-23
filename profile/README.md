@@ -2,9 +2,11 @@
 
 🏟️ **selçuksportshd** ile maç keyfi artık bir tık uzağınızda! Futbol, basketbol, tenis ve daha fazlasını HD kalitede ve donmadan izleyin.  
 
-## 🔗 Site Linki
+## 🔗 Link
 
-👉 [Canlı Maç İzlemek İçin Tıklayın](https://bosstv1.com/)
+<a href="https://bosstv1.com/">
+  <img src="https://i.ibb.co/FL3kspJ2/canliizle.gif"  style="max-width:100%; border-radius:12px;">
+</a>
 
 ## 📺 Neden SelçukSportsHD?
 
